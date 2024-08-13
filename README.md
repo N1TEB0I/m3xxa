@@ -14,7 +14,6 @@
 
  ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ “ Please...keep me alive... This unit, *I want to survive as its leader*. ”
 
-⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ✩✩ *Freaking Out the Neighborhood*. ✩✩
 
 ⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀   ⠀⠀⠀⠀⠀⠀     ![image](https://github.com/user-attachments/assets/783ad4a3-7942-45e3-94f6-7586ce0837a2) # loser girl/tallulah ![image](https://github.com/user-attachments/assets/d2c61397-7da2-436a-8945-7e62beb67be7)
 
