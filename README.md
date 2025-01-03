@@ -15,10 +15,3 @@
 
 
 ![image](https://github.com/user-attachments/assets/934ff1fe-4cd3-42ad-aea5-3cdf8d41d2a7)
-
-
-(creds to lavendergalatic from tumblr for the monika graphic + infectedrpd for the dividers.)
-
-![image](https://github.com/user-attachments/assets/d9cfb2b2-8fb0-42cb-85cf-a56d8c2f8f27)
-
-(creds to lavendergalatic from tumblr for the monika graphic!)
